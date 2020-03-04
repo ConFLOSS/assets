@@ -12,7 +12,7 @@ Se você se sentiu ameaçado(a) ou desrespeitado(a), entre em contato com a orga
 
 A organização tomará as medidas necessárias para impedir que as práticas de assédio se repitam. Nós integramos e valorizamos muito a comunidade e desejamos a todos um excelente evento, independentemente das diferenças que todos possuímos, que não devem, de forma alguma, nos dividir.
 
-Contato: [atendimento@confloss.com.br](mailto: atendimento@confloss.com.br)
+Contato: atendimento@confloss.com.br
 
 Nós esperamos que todos(as) participantes sigam as orientações gerais deste documento e não permitam que práticas ofensivas e discriminatórias venham a acontecer na ConFLOSS.
 

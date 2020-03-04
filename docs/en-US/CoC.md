@@ -12,7 +12,7 @@ If you felt threatened or disrespected, contact the Organization and state your 
 
 The Organization will take the necessary actions to prevent the incident to repeat . We're part of and value the community and wish everyone an excellent event, independently of the differences that we all have that must not divide us in any way.
 
-Contact: [atendimento@confloss.com.br](mailto: atendimento@confloss.com.br)
+Contact: atendimento@confloss.com.br
 
 We expect every participant to follow the general guidelines of this document and prevent offensive and discriminatory practices from happening at ConFLOSS.
 
